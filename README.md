@@ -1,1 +1,1 @@
-# Renginai
+# Renginiams skirta informacija
